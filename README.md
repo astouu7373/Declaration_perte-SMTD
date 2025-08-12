@@ -1,0 +1,1 @@
+# Declaration_perte-SMTD
